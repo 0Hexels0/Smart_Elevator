@@ -1,7 +1,11 @@
 
 
 
-https://github.com/user-attachments/assets/81d87aec-4162-4060-bf08-0517710fcb60
+
+
+Uploading akıllıasansör.mp4…
+
+
 
 
 # Smart_Elevator
